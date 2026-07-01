@@ -1,3 +1,3 @@
-### Ali Tadayoni's Resume
+### Ali Tadayoni's resume
 
 will be updated...
